@@ -1,4 +1,4 @@
-#مڑہ مونگ نشو برداشت کولے???
+#مڑہ مونگ نشو برداش کولے???
 #coded by AWAIS PAHTOON
 #Facebook : www.facebook.com/Mohmand.awais
 
