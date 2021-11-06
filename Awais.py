@@ -1,4 +1,4 @@
-#مڑہ مونگ نشو برداش کولے???
+#WELCOM TO TOOL???
 #coded by AWAIS PAHTOON
 #Facebook : www.facebook.com/Mohmand.awais
 
